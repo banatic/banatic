@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="120" src="https://moominda.synology.me:628/github_profile.png"  />
+<img align="right" height="120" src="https://github.com/user-attachments/assets/32dd4017-eb27-49c7-adc0-c6eb55576f36" />
 
 ###
 
